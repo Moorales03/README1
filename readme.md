@@ -7,7 +7,6 @@ Actualmente mis estudios son:
 *FPB Administrativo en IES GALAN ACOSTA
 *FP Sistemas Microinformáticos y Redes
 
-Estuve trabajando durante un periodo de 3 meses en una tienda de reparaciones de dispositivos electronicos  
 
 
 
